@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Anna George
+- 👀 I’m interested in acquiring analytical skills
+- 🌱 I’m currently pursuing Ph.D
+- 💞️ You can call me as Anna Liju
